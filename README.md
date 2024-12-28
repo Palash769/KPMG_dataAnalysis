@@ -1,3 +1,6 @@
+![WhatsApp Image 2024-12-28 at 21 17 40_82306676](https://github.com/user-attachments/assets/a8671706-2db3-438f-adeb-4e11dd4f9901)
+![WhatsApp Image 2024-12-28 at 21 17 39_be86b6da](https://github.com/user-attachments/assets/44a2fae0-7c2c-42bc-9aa4-3fb092c1b62f)
+![WhatsApp Image 2024-12-28 at 21 17 39_45ebfc82](https://github.com/user-attachments/assets/98f6e16f-ed5b-477b-96e0-03f152529532)
 # KPMG_dataAnalysis
 
 ## Description
